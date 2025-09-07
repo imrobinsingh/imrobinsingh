@@ -65,7 +65,6 @@ B.Tech - Information Technology | 2020
 [![Wellfound](https://img.shields.io/badge/-Wellfound-1C1C1C?style=for-the-badge&logo=angellist&logoColor=white)](https://wellfound.com/u/singh-robin-1)
 
 - 📧 **Email**: robinsgh01@gmail.com
-- 📱 **Phone**: +917550176929
 - 🏢 **Location**: Gurgaon, India
 - 🐕 **Company**: [sploot](https://sploot.co)
 
