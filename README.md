@@ -8,7 +8,7 @@
 
 ---
 
-📍 Bangalore & Gurgaon, India &nbsp;·&nbsp; 📧 robinsgh01@gmail.com &nbsp;·&nbsp; 🐕 [sploot.co](https://sploot.co)
+📍 Bangalore & Gurgaon, India &nbsp;·&nbsp; 📧 robinsgh01@gmail.com &nbsp;·&nbsp; 🐕 [sploot.space](https://sploot.space)
 
 **Reach out to me for**: full-time roles & fractional ops/consulting — Founder's Office, Chief of Staff, Growth & Biz Ops
 
