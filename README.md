@@ -104,6 +104,7 @@ I build what's missing — customer success from WhatsApp chaos, a semantic QA b
 [![Wellfound](https://img.shields.io/badge/-Wellfound-1C1C1C?style=for-the-badge&logo=angellist&logoColor=white)](https://wellfound.com/u/singh-robin-1)
 
 **Education**: B.Tech IT — SRM Institute of Science & Technology, 2020
+
 **Interests**: ⚽ Football · 🏎️ Formula 1 · 🎤 Community meetups · 💼 Startups & VC
 
 ---
